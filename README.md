@@ -18,7 +18,6 @@
 
 <p align="center">
   💡 Aperçus exclusifs : Soyez parmi les premiers à découvrir mes nouvelles créations avant leur sortie officielle
-  https://onlyfans.com/bitgardentools
 </p>
 
 <br><br>
